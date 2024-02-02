@@ -1,7 +1,7 @@
 👀 I'm interested in leveraging my 5+ years of IT experience to drive innovative solutions.
 🌱 I'm currently learning about emerging technologies and their impact on product strategy.
 💞️ I'm looking to collaborate on projects that involve strategic product development and agile methodologies.
-📫 Reach me at: ckiranmai1996@gmail.com | 
+📫 Reach me at: ckiranmai1996@gmail.com
 😄 Pronouns: She/Her
 
 About Me
